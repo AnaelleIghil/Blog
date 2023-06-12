@@ -1,0 +1,38 @@
+# Une journée à la Fac
+## Farternité/sororité
+
+-”Meuf, je stresse tellement pour aujourd’hui” maugréa Eugénie en essayent d’ajuster son bandana sous son chapeau pointu. Zéli passa la tête par l’embrasure de leurs salles de bain, sa brosse à dents coincés dans sa bouche couverte de mousse et agita un doigt en direction de son amie : le bandana s’ajusta parfaitement sous le chapeau, les petites mèches de cheveux bien calés en dessous.  
+-”Comment tu fais pour maitriser aussi bien les sorts de télékinésie capillaire ?” demanda Eugénie en se tournant vers sa colocataire. Cette dernière cracha dans le lavabo et sortie de la salle de bain en frottant une serviette dans ces cheveux.
+-”Ma sœur, regarde ben ça :” une tignasse frisée rousse s’échappa de la serviette. “Je ne peux rien en faire, ils ont leur vie propre. Tu vois cette raie ridicule au milieu, pas moyen de la changer de place. Ça fait 25 ans que j’essaye de faire quelque chose de mes cheveux, et même la magie ne m’aide pas. Mais au moins, je maitrise bien la télékinésie en général. Dommage que je n’aie pas tes talents culinaires.”
+ Eugénie rie en lançant le café. Zéli enfila une robe longue noire à bretelles fines et vint s’assoir à côté de sa colocataire. 
+-”Bon, dit moi ce qui te fait peur.”
+-”J’ai deux examens, un en droit magique et juste après en Dragonisterie, et celui-là je le sens pas. J’adore les créatures magiques, mais les dragons, c’est une autre paire de manches. Ils m’impressionnent avec leurs capacités de télépathie et leurs immenses connaissances.”
+-” Je te comprends, mais voit ça comme un avantage, tu fais un double cursus en droits et créatures magiques pour pouvoir mieux les protéger. C’est une approche à l’opposé des autres personnes dans ton cursus, qui veulent juste travailler avec des dragons, je pense que ça peut jouer en ta faveur, surtout si tu tombes sur Apalala. Il appréciera ça, et bien, c’est juste un examen de physiologie non “
+-”Euh oui, mais comment tu sais tout ça ?”
+-”Bah tu sais, la Sirène qu’on a croisée au sabbat des Omegomongus ?”
+Eugénie acquiesça en buvant une gorgée de café.
+-”Bah on s’est bien rapproché après ça, et ses cours de Créatures des forets sont dans le même bâtiment que mes cours de Démonologie Mineures. Elle stresse aussi pour l’examen, les dragons terrestres, c’est pas son fort. Je la rejoins pour manger à midi, si tu veux te joindre à nous”
+Un chat calicot entra pas la fenêtre. Il portait dans sa gueule un petit morceau de papier.
+-”C’est le chat de Ptolem ?” s’étonna Zéli.
+-”Hi hi, oui, on s’est vu toute la semaine pour réviser notre droit, et je crois qu’il pourrait se passer quelque chose avec lui. C’est dommage qui ne fasse partie d’aucune Fraternité, il ne peut pas vivre sur le campus.
+-”Oui, mais au moins il a son propre appartement !”
+-”T’aime plus vivre avec moi ?” s’offusqua faussement Eugénie 
+-”Non, c’est pas ça, mais les sirènes n’aime pas trop voir des terrestres trainées dans leurs souterrains, et on est quand même au dernier étage de l’arbre de vie des Volalenn, je vois pas comment on pourrait trouver un peu d’intimité. Eugénie rougit en lisant le message : 
+-”Il me propose de venir passer une soirée chez lui… Ça te dérange de m’accompagner avec Arylenn ? Il possède une piscine reliée au réseau souterrains marins, au moins vous pourriez avoir de “l’intimité” et si j’ai trop peur, je pourrais vous interrompre.”
+Eugénie termina son café et attrapa son sac à dos.
+-”Honnêtement, je pense pas que Ptolem tente quoique ce soit d’inconvenant. Il est aussi religieux que toi, et je pense que c’est ce qui fait qu’il ne veut pas être dans une fraternité, il y à trop de dérives chez les sorciers. On en reparle à Midi, tu m’envoies un hibou quand tu sors de ton examen, je passe la mâtinée à la bibliothèque.”
+-”Ça marche, bonne révision.” Zéli sortit de leur appartement, traversa un couloir recouvert de bois et ouvrit une porte qui donnait sur le vide. Elle tendit la main et une planche de long board arriva à sa hauteur. Elle grimpa dessus et glissa jusqu'à sa destination. Elle aimait bien le campus de sa ville, une grande rivière reliée tous les bâtiments pou permettre aux sirènes de se déplacer. Il n’y avait pas de bitumes comme certaines universités modernes, ce qui en faisait un lieu de prédilection pour les centaures. Ils se retrouvaient généralement ne grands groupes avec des elfes et des fées dans les forets qui jouxtait l’entrée des mines. Elle s’amusait à chaque fois de voir comment la société avait imaginé Il y à encore 50 ans, jamais on aurait pensé qu’un centaure puisse faire des études de minéralogie, où qu’un nain face de la démonologie. Ou encore que les sirènes aillent dans les mêmes campus que les harpies. Mais son université avait réussi à prouver au monde magique qu’une entente était possible, dans une société adaptée à tous. Alors qu’elle descendait doucement vers la bibliothèque souterraine, elle se fit quasiment renversée par un nain sur un balai. Il s’arrêta juste avant le mur et descendit péniblement de son engin. Zéli sauta agilement de sa planche, qui reparti dans les airs.
+-”Bah alors Nielbeuk, tu testes une nouvelle monture ?”
+-”M’en parle pas ma sœur, j’ai refait les branches de mon balai, il pousse de ouf maintenant, faut que je raccourcisse le manche pour plus de maniabilité avant de me faire tuer. T’a pas idée comment je me suis fait insulter par les fées de ta Sororité en passant trop prêt de leurs douches.”
+-”Tu viens réviser tes potions ?”
+-”Ouais, et toi, qu’est-ce que tu fais ici ?”
+-”Je suis lié à un Démon du 7e cercle, et il affectionne venir dans la bibliothèque des nains, quelque chose avoir avec les anciennes énergies.”
+Zéli et Nielbeuk descendaient l’escalier colossal qui menait dans les profondeurs de la bibliothèque.
+-”Au fait, j’ai reçu un message d’un goéland. Eh la vache, c’est grand ces trucs-là, limite je pourrais le chevaucher pour aller au bar. Bref, le piaf m’apporte son message et ça dit un truc du genre Désole de t’importuner, je sais que c’est pas commun pour nos deux espèces de se côtoyer, mais je te vois passer tous les jours au-dessus de mon bassin et j’aimerais vraiment bien te connaître, et c’est signé, mais j’arrive pas à lire la signature tu crois que ta copine pourrait m’aider ?”
+-”Ouuuuh mais c’est que tu fais tourner les têtes mon cher ! Écoute, on à rendez-vous près de la clairière aux trèfles, dans la mare des songes, t’sais à côté du bâtiment de philo à midi. Ptolem et Eugénie seront là aussi, joint toi à nous et puis on verra bien”
+-”Ils sont pas encore ensemble ces deux là ? Sérieux ça se voit qu’il la kiff grave, elle devrait tenter sa chance”
+-”Ouais, mais tu connais Eugénie … ” Nielbeuk s’arrêta soudain. Il frissonnait.
+-”Je crois que ton démon arrive, je me sens pas super bien… tu sais où me trouver. Ça te dérange de me prendre sur ta planche pour aller à la mare, j’ai vraiment eu peu ce matin sur mon balai”. Un chat noir attendait en bas de l’escalier. Son ombre mouvante semblait faite de tentacules et de volutes de fumées, mais elle dégoulinait sur le mur.
+-”Ouais pas de soucis. Et tu devrais voir avec Astros, le faune, il est doué pour les balais custom, allé je te laisse”
+Le chat souri. Le monde des vivants avait vraiment changé depuis qu’ils maîtrisaient le voyage spatial. Et cela allait permettre la réalisation du Grand Plan. Zéli était prometteuse et la Grande Instance avait déjà déterminé son rôle de chevalière de l’Apocalypse des mondes extra-terrestre bien avant sa venue au monde. Et en plus, elle faisait des grattouilles derrière les oreilles particulièrement appréciables. 
+

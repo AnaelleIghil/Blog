@@ -1,0 +1,8 @@
+# Monsieur Patate
+
+## le language des oiseaux
+
+Je suis rentré chez moi un vendredi, après une semaine particulièrement éprouvante à l’internat. J’étais contente de rentrer chez moi, ma famille ne serait pas là, mais j’aurais le frigo plein et la maison pour moi toute seule. Et puis j’allais retrouver mes animaux ! Alors que je trainais péniblement ma valise dans l’allée, mon casque glissa de mes oreilles et j’entendis les bruits du monde réel. Et quelque chose me gêna,
+Au milieu de tous ces bruits si particuliers, si familiers, quelque chose manquait.
+Je jetais mon linge au sale, et me dirigeait vers la cuisine quand une forme noire passa devant la fenêtre. J’avais dû rêver, j’étais vraiment épuisée après le trajet en train pour rentrer chez moi. 
+Alors que je prenais mon plateau avec moi pour aller dans le jardin, je notais enfin ce qui manquait : le chant des oiseaux. On n’entendait plus à présent que les croassements des corbeaux et les cris stridents des buses qui vivaient dans le grand sapin à l’entrée. Mais plus aucun piaillement, pépiement de petits oiseaux. Ils avaient déserté les haies, ce qui était vraiment étrange à cette période de l’année. Alors que je m’interrogeais sur le sujet, Monsieur Patate fit son entrée. Il me regarda, de son regard si profond, l’air de dire “salut beauté, je t’ai manqué j’espère”. Et je remarquais alors un petit tas de plumes près de la porte du jardin. Je compris alors pourquoi le chant des corbeaux avaient changé lui aussi, les oiseaux possèdent visiblement un langage universel, et ils cherchaient à avertir les environs du terrible chasseur qui logeaient en cette maison. 
